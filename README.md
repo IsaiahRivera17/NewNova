@@ -1,3 +1,3 @@
 # NewNova
 
-#fuckl shit bitch
+#new changes coming soon alex is a noob lol
