@@ -1,1 +1,3 @@
 # NewNova
+
+#fuckl shit bitch
